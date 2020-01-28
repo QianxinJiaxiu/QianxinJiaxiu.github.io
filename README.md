@@ -1,2 +1,0 @@
-# QianxinJiaxiu.github.io
-Homepage
